@@ -1,4 +1,4 @@
-If you'd like any others added, let me know @skeptical on discord
+If you'd like any others added, let me know @9l on discord
 github.com/bikini
 
 ```FARADAY{ehlo_@nd_w3lcom3!}
